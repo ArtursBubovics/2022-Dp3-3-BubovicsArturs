@@ -1,1 +1,1 @@
-# 2022-Dp3-3-Bubovi-sArt-rs
+# 2022-Dp3-3-BubovičsArtūrs
